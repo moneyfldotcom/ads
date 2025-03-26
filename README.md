@@ -1,0 +1,1 @@
+If you are reading this you have probably gone as far off course as I have in making this so good luck. I hope you make it back home and tell the world I am lost. I think I took a wrong left turn at Albuquerque.
